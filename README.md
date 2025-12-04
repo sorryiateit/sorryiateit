@@ -1,6 +1,6 @@
 # Hi there 👋
 
-I'm Eli - a huge Nintendo fan and gaming enthusiast!
+I'm Ludicolo - a huge Nintendo fan and gaming enthusiast!
 
 # About Me
 
